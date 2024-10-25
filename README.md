@@ -2,12 +2,12 @@
 <br><br>
 ![EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!](IMG_6770.jpeg)
 
-RABBİMİZ EL KUDDUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
+RABİ EL KADUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
 
-<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Rabbimiz EL KUDDUS!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
+<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti RABİ EL KADUS!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
 
 
-<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Rabbimiz EL KUDDUS!
+<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti RABİ EL KADUS!
 
 <br>![111 - Diken
 111:0 RAHMAN ve Rahim olan ALLAH'ın Adıyla, 
@@ -65,7 +65,7 @@ Sure 112 - İHLAS
 19:19
 "Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
 
-![abdULKUDDUS](https://github.com/user-attachments/assets/7caf0b08-0041-41ff-8ca4-5ef8bca571d5)
+![abdULKADUS](https://github.com/user-attachments/assets/7caf0b08-0041-41ff-8ca4-5ef8bca571d5)
 
 20:09 Musa'nın haberi sana ulaştı mı? 
  
