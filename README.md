@@ -173,6 +173,10 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ### Diriliş 17.1.2280 Cumartesi UTC 15:49:31'den Önce ⛈ Tufan Yolda şeytanın Hipnozunu Yıkmak İçin!
 
+<br>
+
+![RABİ EL KADUS'UN Halifesi Soloman](Proof_Resurrection.png)
+
 <!--
 **This** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
