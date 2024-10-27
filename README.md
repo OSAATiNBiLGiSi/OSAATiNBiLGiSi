@@ -1,6 +1,14 @@
+![RABİ EL KADUS'UN Halifesi Soloman](Proof_Resurrection.png)
+
+<br>
+
 73:5 Ayeti'nde Vaat Edilen Söz:
-<br><br>
+
+<br>
+
 ![EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!](IMG_6770.jpeg)
+
+<br>
 
 RABİ EL KADUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
 
@@ -141,7 +149,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:21 Dedi, "Al onu, korkma. Onu ilk durumuna sokacağız." 
 
-[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
+[![FUSION BATTERY](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
 
 20:22 "Bir başka delil olarak, elini koltuğunun altına koy; lekesiz bembeyaz olarak çıksın." 
  
@@ -172,10 +180,6 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 ![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/promisen-word-in-verse-73-5.png)
 
 ### Diriliş 17.1.2280 Cumartesi UTC 15:49:31'den Önce ⛈ Tufan Yolda şeytanın Hipnozunu Yıkmak İçin!
-
-<br>
-
-![RABİ EL KADUS'UN Halifesi Soloman](Proof_Resurrection.png)
 
 <!--
 **This** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
