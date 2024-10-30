@@ -6,7 +6,7 @@
 
 <br>
 
-![EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!](IMG_6770.jpeg)
+![73:5](73/5-git.png)
 
 <br>
 
@@ -166,18 +166,6 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 20:28 "Ki sözümü anlasınlar."
 
 ### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
-
-### 🔥 “ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”
-
-<br>
-
-![“ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”](/73-5-ayetinde-vaat-edilen-söz.png)
-
-### 🔥 “EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”
-
-<br>
-
-![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/promisen-word-in-verse-73-5.png)
 
 ### Diriliş 17.1.2280 Cumartesi UTC 15:49:31'den Önce ⛈ Tufan Yolda şeytanın Hipnozunu Yıkmak İçin!
 
