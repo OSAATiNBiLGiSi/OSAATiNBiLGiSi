@@ -63,7 +63,7 @@ Sure 112 - İHLAS
  
 112:3- DOĞURULMADI! VE DOĞURMADI!
  
-112:4- VE HİÇ KİMSE DENGİ, O'NA OLMADI!”
+112:4- VE OLMADI O'NA KÂFİ TEK (HALİFE) !”
 
 
 42:6 Onlar, O'nun yanı sıra veliler edindiler. ALLAH, onları görüp gözetlemektedir. Sen onlara vekil değilsin.
