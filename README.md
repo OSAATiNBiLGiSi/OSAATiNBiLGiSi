@@ -23,7 +23,7 @@ RABİ EL KADUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram
 111:2 Ne kazandığı ne malı ona yaramadı.
 111:3 O yaslanacak ateşin alevlisine!
 111:4 Ve onun karısı odun hamalı!
-111:5 Boynunda ip dikenden!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
+111:5 Boynunda ip dikenden!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_EL_KADUS!.jpg)
 
 
 FURKAN 3:18- Yoksa ALLAH'tan başka TANRI'mı var? Öyle olsaydı yerin ve göğün düzeni bozulur, her biri diğerine üstün gelmek için bir yol arardı.
