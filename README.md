@@ -1,4 +1,4 @@
-![RABİ EL KADUS'UN Halifesi Soloman](Proof_Resurrection.png)
+![EL KADUS'UN Halifesi Rahman](Proof_Resurrection.png)
 
 <br>
 
@@ -10,12 +10,12 @@
 
 <br>
 
-RABİ EL KADUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
+EL KADUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
 
-<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti RABİ EL KADUS!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
+<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti EL KADUS!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
 
 
-<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti RABİ EL KADUS!
+<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti EL KADUS!
 
 <br>![111 - Diken
 111:0 RAHMAN ve Rahim olan ALLAH'ın Adıyla, 
